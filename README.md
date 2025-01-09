@@ -1,0 +1,1 @@
+Find && recognize && punch CMG
